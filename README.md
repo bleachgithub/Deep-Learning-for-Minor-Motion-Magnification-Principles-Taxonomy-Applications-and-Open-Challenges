@@ -1,0 +1,1 @@
+# Deep-Learning-for-Minor-Motion-Magnification-Principles-Taxonomy-Applications-and-Open-Challenges
